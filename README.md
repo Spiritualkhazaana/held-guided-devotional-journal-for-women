@@ -1,1 +1,3 @@
-# held-guided-devotional-journal-for-women
+# *HELD by Sarah Benedetto: A 91-Day Devotional Review*
+## *In the quiet corners of a woman’s life, there are seasons that feel less like a garden and more like a desert. They are dry, lonely, and seemingly infinite. Whether you are navigating the heavy fog of grief, the draining exhaustion of burnout, or the disorienting shifts of a life transition, the weight of “carrying it all” can become a burden too heavy for any one person to bear.* [More details…](https://spiritualkhazaana.com/held-by-sarah-benedetto-devotional-review/)
+## #held #spiritualrenewal #devotionaljournal #youarenotalone #seekingpeace
